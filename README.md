@@ -1,1 +1,0 @@
-# ayaytin.github.io
